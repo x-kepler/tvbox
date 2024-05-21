@@ -1,6 +1,3 @@
-欢迎关注公众号：前线信息分享
-
-关注追更新
 
 【腾讯文档】本地包使用教程
 https://docs.qq.com/doc/DSkhUVE1OSmpZWkJ3
